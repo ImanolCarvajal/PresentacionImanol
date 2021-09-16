@@ -9,3 +9,4 @@ Me llamo Kylian Imanol Mbappé, tengo 17 años y vivo en Barcelona, en Santa Col
 
 
 Juego a basquét desde los 9 años, en un equipo federado que se llama Gramenet BC.
+
